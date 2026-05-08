@@ -35,7 +35,7 @@ This app is not directed at children under 13.
 
 ## Contact
 If you have questions about this privacy policy contact:
-beethovenhrangkhawl7@gmail.com
+beethovenhrangkhawl17@gmail.com
 
 ## Changes
 We may update this policy. Changes will be posted on this page.
