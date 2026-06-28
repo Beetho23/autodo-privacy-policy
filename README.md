@@ -57,7 +57,7 @@ We may update this privacy policy from time to time. Any changes will be posted 
 
 9. Contact
 If you have any questions or concerns about this privacy policy or how your data is handled, please contact:
-Beethoven Hrangkhawl
-📧 beethovenhrangkhawl17@gmail.com
+AutoDo Android 0
+📧 autodoandroid@gmail.com
 
 This policy is written in plain language intentionally. If you have any questions we are happy to explain anything further.
